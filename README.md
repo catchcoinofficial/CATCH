@@ -8,7 +8,7 @@ info@catchcoin.com
 
 ## Social Media
 
-- YouTube: [catchcoin YouTube Channel] (https://www.youtube.com/@catchcoin7330)
+- YouTube: [catchcoin YouTube Channel] (https://www.youtube.com/@catchcoinofficial)
 - Facebook: [catchcoin Facebook Page] (https://www.facebook.com/catchcoin)
 - LinkedIn: [catchcoin LinkedIn Profile] (https://www.linkedin.com/company/catchcoin)
 - Telegram: [catchcoin Official Telegram] (https://www.t.me/catchcoinofficial)
